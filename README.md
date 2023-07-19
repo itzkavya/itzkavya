@@ -6,7 +6,7 @@
 
 💼 As an RPA Developer
 
-🎓 I hold a Bachelor's degree in Computer Science.
+🎓 I hold a Bachelor's degree in Information Technology (IT).
 
 📫 If you would like to connect, collaborate, or discuss potential opportunities, feel free to reach out to me. I'm always excited to connect with fellow automation enthusiasts!
 
