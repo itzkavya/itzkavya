@@ -1,4 +1,4 @@
-🤖 RPA Developer | Automation Enthusiast | HCl Alumnus 🚀
+🤖 RPA Developer | Automation Enthusiast | HCL Alumnus 🚀
 
 👋 Hello, I'm Matangi Singh, a passionate RPA Developer over 1.5 years of experience at HCL Tech.
 
